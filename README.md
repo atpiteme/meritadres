@@ -1,5 +1,5 @@
 # Meritking 
-<a href="https://www.redly.vip/qV9TCc3">Meritking Güvenilir Giriş Adresine Yeniden Bu Adrese Tıklayarak Giriş Yapabilirsiniz</a>
+<a href="https://t.me/meritkingtelegram">Meritking Güvenilir Giriş Adresine Yeniden Bu Adrese Tıklayarak Giriş Yapabilirsiniz</a>
 
 # Meritking Güvenilir Giriş Adresine Yeniden Bu Adrese Tıklayarak Giriş Yapabilirsiniz.
 # Meritking Güvenilir Giriş Adresine Yeniden Bu Adrese Tıklayarak Giriş Yapabilirsiniz.
